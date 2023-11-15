@@ -6,5 +6,3 @@
 
 
 
-https://github.com/Manaswini2023/Bharat_Intern_Content-Management-Tool/assets/135508830/6e29e111-93dd-4fe4-9f9f-7193c16d04c3
-
